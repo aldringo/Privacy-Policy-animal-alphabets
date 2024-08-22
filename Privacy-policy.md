@@ -1,3 +1,5 @@
+Privacy Policy:
+
 Effective Date: August 22, 2024
 
 At TinkerTala, we prioritize the privacy of children who use our educational mobile application, "Animal Alphabets", available on the Google Play Store. This Privacy Policy outlines the methods by which we collect, use, and protect any information, especially as it pertains to children under the age of 8.
